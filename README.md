@@ -9,7 +9,7 @@ A bit about myself:
 
 🦄 Passionate about all things recruitment
 
-🌪 Love startups, product companies, service companies actually all pleases that makes people happy
+🌪 Love startups, product companies, service companies actually all companies that make people happy
 
 ca Currently in Ottawa, Ontario
 
