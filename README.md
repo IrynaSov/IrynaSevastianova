@@ -7,7 +7,7 @@ Will add soursing Toolkit ina while
 
 A bit about myself:
 
-🦄 Passionate about all things recruitment
+🦄 Passionate about ITrecruitment
 
 🌪 Love startups, product companies, service companies actually all companies that make people happy
 
