@@ -3,7 +3,7 @@ About me
 Hi there! 👋
 I’m Iryna, and I’m currently running recruitment for @CreatorIQ.
 
-Will add soursing Toolkit ina while
+Will add soursing Toolkit in a while
 
 A bit about myself:
 
